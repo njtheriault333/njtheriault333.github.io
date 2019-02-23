@@ -1,2 +1,2 @@
 # njtheriault333.github.io
-Nathalie Theriault Website
+Nathalie Theriault's Website
